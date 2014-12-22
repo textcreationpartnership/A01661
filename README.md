@@ -35,11 +35,81 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-This boke doth create all of the beste waters artyfycialles and the vertues and properties of the sa
+
 #####Body#####
-This boke doth create all of the beste waters artyfycialles and the vertues and properties of the sa
+THe whiche treatyse I haue wylled to wryte or a good & a louyng zele pytie and compassyon of godly dTAke wedges of fyne golde, well warmed in the Fyre, and quenche it .xlii. tymes within the water of 
+1. ¶The water of the Floures of Rosemarye.
+
+1. ¶The water of red Roses.
+
+1. ¶The water of Betayne.
+
+1. ¶The water of plantayne
+
+1. ¶The water of lettys and of Endyue.
+
+1. ¶The water of Fumetory.
+
+1. ¶The water of balme.
+
+1. ¶The water of Elder.
+
+1. ¶The water of Elder and of Buglose.
+
+1. ¶The water of Garlyke.
+
+1. ¶The water of red soddes called Archangell mountayne.
+
+1. ¶The water of hertes tonge cycore endyue, all togyther by egall porcions with the roote of peccylle.
+
+1. ¶The water of Fenell.
+
+1. ¶The water of Cuffrurie montayne.
+
+1. ¶The water of Ysop drye.
+
+1. ¶The water of horuid.
+
+1. ¶The water of sauge.
+
+1. ¶The water of the rootes and leues of Bresyll and of fyre.
+
+1. ¶The water stronge is in laten inchium.
+
+1. ¶The water of Quyns Appels and of red Roses.
+
+1. ¶The water of Malous.
+
+1. ¶The water of Scabiouse.
+
+1. ¶The water of Saxifrage.
+
+1. ¶The water of myntes.
+
+1. ¶The water of Radesshe.
+
+1. The water of purslane.
+
+1. The water of howsleke.
+
+1. ¶The water of Bursa pastoris.
+
+1. ¶The water of the flourdelyce and of the leaues.
+
+1. ¶The water of Lylyes.
+
+1. This is all one.
+
+1. The water for the Goute.
+
+1. The water of the grayne of Geneper.
+
+1. ¶For to please, and for to make these women to seme more fayrer, & yonger vnto theyr husbandes, and for to kepe theym from goynge in to fornycacion, and aduoutre, it is suffred to vse of some waters the which maketh the vysage fayre and whyte, and of these waters, I shal put here the which ben called symples and of other composed and made.
+
 #####Back#####
-This boke doth create all of the beste waters artyfycialles and the vertues and properties of the sa
+
+1. ¶The Table of this present Booke.
+¶Imprinted by me Robert ••••r
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
